@@ -1,2 +1,2 @@
 # designaina
-My Defigns!
+My Designs!
